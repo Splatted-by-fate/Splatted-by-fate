@@ -8,8 +8,8 @@
 </p>  
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/11e5be0d-c4df-466e-a850-35e40f21c032"width="500">
-</p>  
+  <img src="https://github.com/user-attachments/assets/cd835007-6854-49f2-9802-4c1bfc136163"width="500">
+</p>
   <p align="center"> $\color{#df6889}{\textbf{I love this headphones design is beautiful <3 }}$
     <p align="center"> $\color{#df6889}{\textbf{BEAUTIFUL ART USED FOR GITHUB AND PFP BY @mikaby3 ON PINTEREST!!}}$
     <p align="center"> $\color{#df6889}{\textbf{They are inactive on all platforms but go check them out their art is beautiful!!}}$
@@ -26,3 +26,5 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/045673a5-85e8-46fe-b70c-a4501bdf0909"width="1000">
 </p>  
+
+ 
