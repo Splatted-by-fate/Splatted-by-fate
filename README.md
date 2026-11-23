@@ -1,3 +1,8 @@
+<div align="center">
+
+<div align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=times+new+roman&weight=100&duration=4000&pause=1000&color=76407E&width=435&lines=You'll+paint+the+world%2C+and+ill+play+my+melodies+%5E%5E)](https://git.io/typing-svg)
 
 <div align="center">
 
