@@ -14,7 +14,7 @@
 </p>
 
   <p align="center"> $\color{#741375}{\textbf{Meh, could have turned out worse beeing the first graphic of this kind that i make xd}}$
-    <p align="center"> $\color{#500a51}{\textbf{idk why tf the fluffle one is minuscule, but ykw i give up lol }}$
+    <p align="center"> $\color{#500a51}{\textbf{ if ya reading this have a great day oki :3 }}$
 
 [![](https://file.garden/awS4vgbMmUqHjS3x/454%20sin%20t%C3%ADtulo.png)](https://keeperofthetimeline.atabook.org/)[![](https://file.garden/awS4vgbMmUqHjS3x/454%20sin%20t%C3%ADtulos.png)](https://fluffle.cc/the-rabbits-burrow)[![](https://file.garden/awS4vgbMmUqHjS3x/454%20sin%20t%C3%ADtuloe.png)](https://time-breaker.straw.page)[![](https://file.garden/awS4vgbMmUqHjS3x/454%20sin%20t%C3%ADtulosss.png)](https://pronouns.cc/@Time_Breaker)
 
